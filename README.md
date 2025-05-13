@@ -1,6 +1,6 @@
-# **Grow a Garden Script 2025 🔥 | No Key • Pastebin • Dupe • Auto Farm • Infinite Money**
+# **Grow a Garden Script 2025 | No Key, Pastebin, Dupe, Auto Farm, Infinite Money**
 
-# 🌿 Grow a Garden Script – Auto Farm | Infinite Money | No Key | Pastebin
+# Grow a Garden Script – Auto Farm | Infinite Money | No Key | Pastebin
 
 Welcome to the most advanced and **completely keyless** Grow a Garden Script of 2025! Whether you're looking to **auto farm**, **auto plant**, **dupe seeds**, or unlock **infinite money**, this script has everything you need—optimized for desktop, mobile, and all popular script executors like **Delta**, **Doggo Hub**, **Solara**, and more.
 
